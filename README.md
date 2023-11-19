@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @SnehalW29
-- 💞️ I’m looking to collaborate on volunteering in entry level cyber security projects 
 - 📫 How to reach me ssnehalwaichal@gmail.com or messsage here @SnehalW29
 
 <!---
