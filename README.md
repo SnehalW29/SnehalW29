@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SnehalW29
+- 👋 Hi, I’m Snehal 
 - 📫 How to reach me ssnehalwaichal@gmail.com or messsage here @SnehalW29
 
 <!---
